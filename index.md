@@ -1,5 +1,5 @@
-Page Title
+Cornwall has been home to my family for many generations
 
-Subtitle
+But it's under attack
 
-Page content
+
